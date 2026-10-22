@@ -1,1 +1,0 @@
-# Smart-Voice-Asustante
